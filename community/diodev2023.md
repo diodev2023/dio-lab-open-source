@@ -1,0 +1,1 @@
+Esse dasafio da DIO criado pela Elediana foi uns dos melhores desafio criado pela dio, pena que eu nao consiguir fazer igual a Elidiana proprois vou finalizar também... na minnha opinião acho que o grande bug estava na Elidiana usar duas conta de github e ela mesmo editar as duas conta, e o aluno só ter acesso a sua propria com ai perdia o lógica do que estava fazendo 
